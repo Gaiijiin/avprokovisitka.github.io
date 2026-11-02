@@ -1,2 +1,0 @@
-# avprokovisitka.github.io
-avprokovisitka
